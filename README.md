@@ -1,2 +1,2 @@
-# trabajo_-2
+# trabajo#2
 trabajo_#2
